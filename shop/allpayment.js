@@ -3,19 +3,19 @@ return `PAYMENT BY ZEEONE OFC
 
 *さ BANK*
 1. BRI 
-	ㅁ 5074-01-003141-52-8
-		• R***A*DI
+	ㅁ Tidak tersedia / Hubungi Nomor di bawah
+		• wa.me/+6285845823026
 		
 *さ E-MONEY*
 1. GOPAY
-	ㅁ 0887 4350 47326
-		• ZE**** **C
+	ㅁ 0858 4582 3026
+		• M
 2. OVO
-	ㅁ 0887 4350 47326
-		• EL*****TI
+	ㅁ 0858 4582 3026
+		• M
 3. DANA
-	ㅁ 0887 4350 47326
-		• ZE**** **C
+	ㅁ 0858 4582 3026
+		• M
 
 *さ PULSA*
 
